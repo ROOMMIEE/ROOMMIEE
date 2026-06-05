@@ -12,6 +12,8 @@ ${\textsf{\color{#dbdbdb}𓈒ׂ࣪⠀Sꫝҽ / ꫝe / Anꪗ ˚̣̣̣　 ⁠}}$
 
 [☁️ ⋮ 𝟎𝟎𝟏 ⋮ cαrrd⠀◟ ༌](https://roomiee.carrd.co) 
 
+[🕯 ⋮ 𝟎𝟎𝟐 ⋮ discord⠀◟](https://discordapp.com/users/1154169906762366996) 
+
 <div align="center"> 
   
 ${\textsf{\color{#dbdbdb}             🕯 𓈒ׂ࣪⠀Found me! I'm 24/7 in PonyTown. HH/HB/CRK Zone or Beach ︶︶³✧˚}}$
