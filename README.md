@@ -2,7 +2,7 @@
 
 ![image_alt](https://github.com/user-attachments/assets/9d7cd3c1-0bbe-4d97-85d5-2ed7522aa238)
 
-${\textsf{\color{#ffffff} .📞 ⋮ 愛 𓈒ׂ࣪⠀◟ ͜ ◞　 𝕽𝟎𝟎𝖒𝟏𝖊𝕰 ˚̣̣̣　 ꒰⁠. ᎑     ᩿     །⸸༌}}$
+${\textsf{\color{#dbdbdb} .📞 ⋮ 愛 𓈒ׂ࣪⠀◟ ͜ ◞　 𝕽𝟎𝟎𝖒𝟏𝖊𝕰 ˚̣̣̣　 ꒰⁠. ᎑     ᩿     །⸸༌}}$
 
 ${\textsf{\color{#dbdbdb}𓈒ׂ࣪⠀Sꫝҽ / ꫝe / Anꪗ ˚̣̣̣　 ⁠}}$
 
