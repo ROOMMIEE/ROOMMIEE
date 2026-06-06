@@ -16,6 +16,8 @@ ${\textsf{\color{#dbdbdb}𓈒ׂ࣪⠀Sꫝҽ / ꫝe / Anꪗ ˚̣̣̣　 ⁠}}$
 
 <div align="center"> 
   
-${\textsf{\color{#dbdbdb}             🕯 𓈒ׂ࣪⠀Found me! I'm 24/7 in PonyTown. HH/HB/CRK Zone or Beach ︶︶³✧˚}}$
+${\textsf{\color{#dbdbdb}       🕯 𓈒ׂ࣪⠀Found me! I'm 24/7 in PonyTown}}$
+
+${\textsf{\color{#dbdbdb} HH/HB/CRK Zone or Beach ︶︶³✧˚}}$
 
 ![image_alt](https://github.com/user-attachments/assets/9d7cd3c1-0bbe-4d97-85d5-2ed7522aa238)
