@@ -1,12 +1,12 @@
 <div align="center">
 
-![image_alt](https://github.com/user-attachments/assets/b697a053-7084-4d6b-b9f5-ee6be34fec49)
+![🤍](https://github.com/user-attachments/assets/b697a053-7084-4d6b-b9f5-ee6be34fec49)
 
 ${\textsf{\color{#dbdbdb} .📞 ⋮ 愛 𓈒ׂ࣪⠀◟ ͜ ◞　 𝕽𝟎𝟎𝖒𝟏𝖊𝕰 ˚̣̣̣　 ꒰⁠. ᎑     ᩿     །⸸༌}}$
 
 ${\textsf{\color{#dbdbdb}𓈒ׂ࣪⠀Sꫝҽ / ꫝe / Anꪗ ˚̣̣̣　 ⁠}}$
 
-![image_alt](https://github.com/user-attachments/assets/af1e262b-0e2e-4bb1-8d2d-a5a6a464ec27)
+![me fr](https://github.com/user-attachments/assets/af1e262b-0e2e-4bb1-8d2d-a5a6a464ec27)
 
 [🤍 ⋮ 𝟎𝟎𝟎 ⋮ 𓈒ׂ࣪sƚrαwpαgҽ⠀◟ ༌](https://roomieere.straw.page)
 
@@ -20,7 +20,7 @@ ${\textsf{\color{#dbdbdb}       🕯 𓈒ׂ࣪⠀Found me! I'm 24/7 in PonyTown}
 
 ${\textsf{\color{#dbdbdb} HH/HB/CRK Zone or Beach ︶︶³✧˚}}$
 
-![image_alt](https://github.com/user-attachments/assets/b697a053-7084-4d6b-b9f5-ee6be34fec49)
+![🤍](https://github.com/user-attachments/assets/b697a053-7084-4d6b-b9f5-ee6be34fec49)
 
 ${\textsf{\color{#dbdbdb} ⋮ 愛 𓈒ׂ࣪⠀◟Mꪗ OTP bt𝓦˚̣̣̣ །⸸༌}}$
 
