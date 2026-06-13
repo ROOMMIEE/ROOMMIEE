@@ -6,7 +6,7 @@ ${\textsf{\color{#dbdbdb} .📞 ⋮ 愛 𓈒ׂ࣪⠀◟ ͜ ◞　 𝕽𝟎𝟎�
 
 ${\textsf{\color{#dbdbdb}𓈒ׂ࣪⠀Sꫝҽ / ꫝe / Anꪗ ˚̣̣̣　 ⁠}}$
 
-![image_alt](https://github.com/user-attachments/assets/c9ff68e6-942d-47f5-8f0b-ec50b8ca3149)
+![image_alt](https://github.com/user-attachments/assets/af1e262b-0e2e-4bb1-8d2d-a5a6a464ec27)
 
 [🤍 ⋮ 𝟎𝟎𝟎 ⋮ 𓈒ׂ࣪sƚrαwpαgҽ⠀◟ ༌](https://roomieere.straw.page)
 
