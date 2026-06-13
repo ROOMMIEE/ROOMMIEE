@@ -1,6 +1,6 @@
 <div align="center">
 
-![image_alt](https://github.com/user-attachments/assets/9d7cd3c1-0bbe-4d97-85d5-2ed7522aa238)
+![image_alt](https://github.com/user-attachments/assets/b697a053-7084-4d6b-b9f5-ee6be34fec49)
 
 ${\textsf{\color{#dbdbdb} .📞 ⋮ 愛 𓈒ׂ࣪⠀◟ ͜ ◞　 𝕽𝟎𝟎𝖒𝟏𝖊𝕰 ˚̣̣̣　 ꒰⁠. ᎑     ᩿     །⸸༌}}$
 
@@ -20,4 +20,4 @@ ${\textsf{\color{#dbdbdb}       🕯 𓈒ׂ࣪⠀Found me! I'm 24/7 in PonyTown}
 
 ${\textsf{\color{#dbdbdb} HH/HB/CRK Zone or Beach ︶︶³✧˚}}$
 
-![image_alt](https://github.com/user-attachments/assets/9d7cd3c1-0bbe-4d97-85d5-2ed7522aa238)
+![image_alt](https://github.com/user-attachments/assets/b697a053-7084-4d6b-b9f5-ee6be34fec49)
