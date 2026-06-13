@@ -21,3 +21,10 @@ ${\textsf{\color{#dbdbdb}       🕯 𓈒ׂ࣪⠀Found me! I'm 24/7 in PonyTown}
 ${\textsf{\color{#dbdbdb} HH/HB/CRK Zone or Beach ︶︶³✧˚}}$
 
 ![image_alt](https://github.com/user-attachments/assets/b697a053-7084-4d6b-b9f5-ee6be34fec49)
+
+${\textsf{\color{#dbdbdb} ⋮ 愛 𓈒ׂ࣪⠀◟Mꪗ OTP bt𝓦˚̣̣̣ །⸸༌}}$
+
+https://github.com/user-attachments/assets/02a5b01a-7b98-4002-8506-86aae492dc42
+
+
+
