@@ -8,9 +8,9 @@ ${\textsf{\color{#dbdbdb}𓈒ׂ࣪⠀Sꫝҽ / ꫝe / Anꪗ ˚̣̣̣　 ⁠}}$
 
 ![me fr](https://github.com/user-attachments/assets/af1e262b-0e2e-4bb1-8d2d-a5a6a464ec27)
 
-[🤍 ⋮ 𝟎𝟎𝟎 ⋮ 𓈒ׂ࣪sƚrαwpαgҽ⠀◟ ༌](https://roomieere.straw.page)
+[🤍 ⋮ 𝟎𝟎𝟎 ⋮ 𓈒ׂ࣪sƚrαwpαgҽ]⠀|| still development...
 
-[☁️ ⋮ 𝟎𝟎𝟏 ⋮ cαrrd⠀◟ ༌](https://roomiee.carrd.co) 
+[☁️ ⋮ 𝟎𝟎𝟏 ⋮ cαrrd⠀◟ ༌] || still development...
 
 [🕯 ⋮ 𝟎𝟎𝟐 ⋮ discord⠀◟](https://discordapp.com/users/1154169906762366996) 
 
