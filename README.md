@@ -12,6 +12,7 @@
 <img width="50" height="50" alt="IMG_2212" src="https://github.com/user-attachments/assets/7cee2001-f633-4dec-b832-efb57b314337" />
 
 ${\Huge \textsf{\color{#dbdbdb}𓈒ׂ࣪⠀Sꫝҽ /}}$ ${\Huge \textsf{\color{#5c5c5c} ꫝe}}$ ${\Huge \textsf{\color{#dbdbdb} / Anꪗ ˚̣̣̣　 ⁠}}$ 
+
 ${\Huge \textsf{\color{#5c5c5c} carrd}}$ ${\Huge \textsf{\color{#dbdbdb} and}}$ ${\Huge \textsf{\color{#5c5c5c} strawpage}}$ ${\Huge \textsf{\color{#dbdbdb} are not available rn :(ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ}}$
 
 <div align="center">
